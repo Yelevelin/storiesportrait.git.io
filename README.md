@@ -1,1 +1,1 @@
-# storiesportrait.git.io
+# https://storiesportrait.git.io
